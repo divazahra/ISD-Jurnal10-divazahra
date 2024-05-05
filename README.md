@@ -1,0 +1,7 @@
+NAMA : Diva Zahra Fakhirah
+
+NIM : 607062330070
+
+JURNAL : 10
+
+KELAS : D3IF 47-04
